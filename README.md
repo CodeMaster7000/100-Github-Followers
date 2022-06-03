@@ -1,4 +1,4 @@
-# 100-Followers
+# 100 Followers!
 
 Late at night on 2nd June 2022, we hit 100 followers on Github! 🎉🎉🎉
 
